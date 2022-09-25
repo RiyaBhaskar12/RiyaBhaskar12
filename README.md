@@ -2,4 +2,4 @@
 - 👀 I’m interested in Designing, App Development and Game Designing.
 - 🌱 I’m currently learning Python and Flutter.
 - 💞️ I’m looking to collaborate on a project based on modification in Wi-Fi options. I have an idea I'd like to work upon, but need guidance and teammates for it. I'd love if you can connect and contribute to my idea.
-- 📫 You can freach me on LInkedIn: https://www.linkedin.com/in/riya-bhaskar-a70648216/
+- 📫 You can reach me on LInkedIn: https://www.linkedin.com/in/riya-bhaskar-a70648216/
