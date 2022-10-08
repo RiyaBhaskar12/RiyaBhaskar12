@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1J7FJP_cRamz_y4dkbVrNkr51bc-O2-7u/view?usp=sharing](https://drive.google.com/file/d/1J7FJP_cRamz_y4dkbVrNkr51bc-O2-7u/view?usp=sharing)
 
-- ⚡ Fun fact - **I have a really good Sense of Humour.
+- ⚡ Fun fact - **I have a really good Sense of Humour.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
