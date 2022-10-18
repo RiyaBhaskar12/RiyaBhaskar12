@@ -13,6 +13,10 @@
 
 - ⚡ Fun fact - **I have a really good Sense of Humour.**
 
+- 🎖️ My Holopin Badges :
+
+    [![@riyahack's Holopin board](https://holopin.me/riyahack)](https://holopin.io/@riyahack)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/https://www.linkedin.com/in/riya-bhaskar-a70648216/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/riya-bhaskar-a70648216/" height="30" width="40" /></a>
