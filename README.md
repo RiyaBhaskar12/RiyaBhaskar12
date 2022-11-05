@@ -15,7 +15,7 @@
 
 - ⚡ Fun fact: **I have a really good Sense of Humour.**
 
--  🏅 My Holpin Badges - 
+-  🏅 My Holopin Badges - 
 -  
     [![@riyahack's Holopin board](https://holopin.me/riyahack)](https://holopin.io/@riyahack)
 
