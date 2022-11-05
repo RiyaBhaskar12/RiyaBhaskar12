@@ -9,9 +9,9 @@
 
 - 🤝 I’m looking for help with **the Wi-Fi Based Project.**
 
-- 📫 How to reach me **https://www.linkedin.com/in/riya-bhaskar-a70648216/**
+- 📫 How to reach me: **riyabhaskar2@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1J7FJP_cRamz_y4dkbVrNkr51bc-O2-7u/view?usp=sharing](https://drive.google.com/file/d/1J7FJP_cRamz_y4dkbVrNkr51bc-O2-7u/view?usp=sharing)
+- 📄 View my Resume: [https://drive.google.com/file/d/1J7FJP_cRamz_y4dkbVrNkr51bc-O2-7u/view?usp=sharing](https://drive.google.com/file/d/1J7FJP_cRamz_y4dkbVrNkr51bc-O2-7u/view?usp=sharing)
 
 - ⚡ Fun fact: **I have a really good Sense of Humour.**
 
